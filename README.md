@@ -1,0 +1,1 @@
+# bugra-kucuk-6.odev
